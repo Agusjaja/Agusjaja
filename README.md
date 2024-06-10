@@ -1,16 +1,13 @@
-## Hi there 👋
 
-<!--
-**Agusjaja/Agusjaja** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Agusjaja/Agusjaja** 
+### Agustín Ignacio Soto Cámara
+#### 5to Año "D"
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🤡 Soy muy bromista y gracioso, me gusta contar 😂chistes malos😂 o de 🌚humor negro🌚.
+- 🐶 Tengo un perro de mascota y es muy peliador 🐶.
+- 🌈🤛🤺 Me encanta ver la serie de los Power Rangers.
+- 👦 Soy el hermano mayor de tres y tengo dos hermanos menores.
+- 🐇🐀🐄🐕🐔🐓🐠😾 Me encantaria ser veterinario para ayudar a los animales.
+- ❤️ Me amo mucho a mi mismo.
+- 😍 Amo a mi familia y a mis amigos😍 y los ayudo si lo necesitan.
+- 🗿🤙🤡 Me encanta ver memes y videos graciosos todo el día.
