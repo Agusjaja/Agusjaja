@@ -11,3 +11,7 @@
 - ❤️ Me amo mucho a mi mismo.
 - 😍 Amo a mi familia y a mis amigos😍 y los ayudo si lo necesitan.
 - 🗿🤙🤡 Me encanta ver memes y videos graciosos todo el día.
+
+
+![mapache que porqueria](https://i.pinimg.com/236x/65/6e/1c/656e1c590517feb170542b40ebcd05b4.jpg)
+[radical](https://i.pinimg.com/236x/fd/f4/da/fdf4daefc31175fee41014489c70357d.jpg)
